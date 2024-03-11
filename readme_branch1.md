@@ -1,0 +1,3 @@
+Dalam dunia kerja yang terus berkembang, keterampilan karyawan menjadi faktor kunci dalam kesuksesan sebuah organisasi. Salah satu konsep yang semakin populer adalah keterampilan berbentuk T (T-shaped skills), di mana seorang individu tidak hanya memiliki keahlian dalam satu bidang tertentu, tetapi juga mampu berkolaborasi dengan berbagai disiplin ilmu lainnya.
+
+Menurut para ahli, karyawan berbentuk T memiliki keunggulan karena mereka tidak hanya ahli dalam tanggung jawab inti mereka, tetapi juga mampu menjalankan tugas-tugas lain dengan efektif. Mereka memiliki keahlian teknis dan kognitif yang luas, seperti kecerdasan emosional dan kreativitas, yang membuat mereka dapat memberikan kontribusi yang bernilai tinggi bagi organisasi.
